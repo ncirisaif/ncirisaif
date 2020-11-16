@@ -8,10 +8,10 @@
   
 **Talking about Personal Stuffs:**
 
-- I’m currently pursuing my final year of Bachelor's degree in Information Technology at [ESPRIT](https://esprit-tn.com/);
+- I’m currently pursuing my final year of Bachelor's degree in Information Technology ;
 - My interests are with Problem solving , Data Science , Soccer , Nature , etc..;
 - I love watching movies 
-- 💬 Ask me about anything, I am happy to help;
+- Ask me about anything, I am happy to help;
 - Please email via saifeddineabidi@gmail.com to reach me;
 <br/> 
 </em>
