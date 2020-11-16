@@ -12,7 +12,7 @@
 - My interests are with Problem solving , Data Science , Soccer , Nature , etc..;
 - I love watching movies 
 - Ask me about anything, I am happy to help;
-- Please email via saifeddineabidi@gmail.com to reach me;
+- Please email via saifeddineabidi1@gmail.com to reach me;
 <br/> 
 </em>
 
