@@ -3,7 +3,6 @@
 
 ## Hi there, I'm [Sayf]! <img src="https://raw.githubusercontent.com/TheDudeThatCode/TheDudeThatCode/master/Assets/Hi.gif" width=35 height=35> ![GitHub followers](https://img.shields.io/github/followers/kishan0725?style=social)
 
-![Profile Views](https://komarev.com/ghpvc/?username=kishan0725&style=flat-square)
 
 <p>
   <em>
